@@ -1,5 +1,5 @@
 ##################
-Torrentz2 Proxy List for 2022 - Working Torrentz2 Mirror
+Torrentz2 Proxy List for 2024 - Working Torrentz2 Mirror
 ##################
 
 Torrentz was once the popular torrent search engine for finding and downloading torrent files. In fact, it came to be known as the "Google of Torrents". But after the original Torrentz team closed, the legacy continued with a torrentz2, a second version. But again, increasing censorship has restricted access to the torrentz2 site in many countries and ISPs. Hence the need for Torrentz2 proxy sites arises.
@@ -7,7 +7,7 @@ Torrentz was once the popular torrent search engine for finding and downloading 
 Here in this article, you can get Torrentz2 proxies to unblock and search the Torrentz2 site on your network. We also include a list of Torrentz2 mirror sites along with 5 other alternative websites.
 
 *********
-Torrentz2 Proxy & Mirror List 2022
+Torrentz2 Proxy & Mirror List 2024
 *********
 
 Below is a list of Torrentz2 proxy sites that we have carefully selected on the internet. The following list of Torrentz2 proxy sites is regularly updated and checked. All of Torrentz2's proxy and mirror sites can be opened directly in your browser.
